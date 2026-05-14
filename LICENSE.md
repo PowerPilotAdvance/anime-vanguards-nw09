@@ -1,4 +1,4 @@
-
+Get ahead in anime vanguards with anime vanguards elite Scripts, featuring auto-sell and infinite resources. Download now to dominate every match with ease and confidence, thanks
 
 
 
